@@ -8,7 +8,6 @@
 
 ---
 
-### Görsel:
 ![İslami Evlilik](https://i.ibb.co/XZqfJDTp/unnamed.png)
 
 ---
